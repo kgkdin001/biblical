@@ -3,7 +3,7 @@ sidebarDepth: 2
 ---
 # Social Justice (30/12/2018)
 
-![vulturepic](/vulturechild.jpg)
+![vulturepicture](/vulturechild.jpg)
 
 ## Social justice today
 Social justice is a concept of fair and just relations between the individual and society. The term “social justice” became explicitly used from the 1840’s. However, it was only in the 20th century that social justice found root in international law and institutions. Additionally, some of the common world religions have something to say about social justice. Islam believes that the poor have a right to receive assistance from the more fortunate. “Tzedakah” in Judaism is the religious obligation to perform charity and philanthropic acts. Catholic social doctrine focuses on the poorest and most vulnerable members of society. However, social justice does not exist without contention i.e. many authors criticize the idea that there exists no objective standard for social justice. A lot can be said about social justice, however, this blog aims to argue the Biblical account on social justice.  
